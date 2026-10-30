@@ -15,7 +15,7 @@
 
 <img width="400" height="449" alt="2aOboR7UphLOYdkjcpNWqrkrSvrl0bvHmycwcWv2 (1)" src="https://github.com/user-attachments/assets/f0994eca-a3f3-4d57-bbe5-f68e05bb9fa0" />
 <p align="center">
-All of the drawings that in my profile and atabook are drawn by me
+All the drawings that in my profile and atabook are drawn by me
 <p align="center">
 Mình thân thiện, cần gì cứ nói. Khá thoáng nên bạn giữ phép lịch sự tối thiểu là được. Hạn chế tiếp xúc với người dưới 15 tuổi vì mình gặp một số trường hợp khá là tày (và không muốn gặp lại thêm lần nào nữa)
 <div align="center">
