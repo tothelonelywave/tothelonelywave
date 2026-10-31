@@ -17,6 +17,8 @@
 <p align="center">
 All the drawings that in my profile and atabook are drawn by me
 <p align="center">
+I'm alright with using English while chatting but I prefer Vietnamese (if you're Vietnamese). Đơn giản là mình yêu tiếng mẹ đẻ của mình nên mình thích sử dụng nó hơn.
+  <p align="center">
 Mình thân thiện, cần gì cứ nói. Khá thoáng nên bạn giữ phép lịch sự tối thiểu là được. Hạn chế tiếp xúc với người dưới 15 tuổi vì mình gặp một số trường hợp khá là tày (và không muốn gặp lại thêm lần nào nữa)
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=tothelonelywave&label=visitor&color=9BB2C7")
