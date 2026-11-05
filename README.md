@@ -3,17 +3,14 @@
   Hyperfixated on FE:C/FE2 right now. I only stay at Safe Vietnamese. Hiii mam @saturatedsummer hii Bon Bon @underthewhitesnow
   <p align="center">
   I'm currently feeling insecure so I won't actively int, sorry about that. If you want to ask me something just whisper or sign ata, I'll check on them.
-  <p align="center">
-  Also dear WL / QĐ, thank you for abandoned all of the things our team did together in the past 5 years just because of your selfishness. Of course you DID NOT CARE about my mental health at that time at all, you just wanted me to continue to STAY at that fandom to continue to draw for you. I didn't think that you could replace us that fast after everything lmao (especially that one person that used to be in the relationship with you), hope you are happy with your decision.
-  
-  <p align="center"> Hết duyên, không thân và tạm biệt.
   <br> <br>
   <p align="center">
 [ <a href="https://tothelonelywave.atabook.org/">atabook</a> ]
   <br> <br>
   <p align="center">
 
-<img width="400" height="449" alt="2aOboR7UphLOYdkjcpNWqrkrSvrl0bvHmycwcWv2 (1)" src="https://github.com/user-attachments/assets/f0994eca-a3f3-4d57-bbe5-f68e05bb9fa0" />
+<img width="2048" height="1152" alt="886707316_122117788347492127_5355498364014922076_n" src="https://github.com/user-attachments/assets/09a828ce-c2a8-49c4-b1f9-89d752b85ddd" />
+<i> Reference goes to 少女と舎利 - 流水【Official Music Video】</i>
 <p align="center">
 All the drawings that in my profile and atabook are drawn by me
 <p align="center">
