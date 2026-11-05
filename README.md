@@ -1,6 +1,6 @@
 <hr>
 <p align="center">
-  Hyperfixated on FE:C/FE2 right now. I only stay at Safe Vietnamese. Hiii mam @saturatedsummer hii Bon Bon @underthewhitesnow
+  Hyperfixated on FE:C/FE2 right now. I only stay at Safe Vietnamese. Hiii mam <a href="https://github.com/saturatedsummer">@saturatedsummer<a/> hii Bon Bon <a href="https://github.com/underthewhitesnow">@underthewhitesnow<a/>
   <p align="center">
   I'm currently feeling insecure so I won't actively int, sorry about that. If you want to ask me something just whisper or sign ata, I'll check on them.
   <br> <br>
