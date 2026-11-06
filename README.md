@@ -16,7 +16,7 @@ https://github.com/user-attachments/assets/cd768e71-f042-4e0c-8ee4-b494324776fd
  <p align="center">
 <i> Reference goes to 少女と舎利 - 流水【Official Music Video】</i>
 <p align="center">
-All the drawings that in my profile (unless the pfp) and atabook are drawn by me
+All the drawings that in my profile (expect the pfp) and atabook are drawn by me
 <p align="center">
 I'm alright with using English while chatting but I prefer Vietnamese (if you're Vietnamese). Đơn giản là mình yêu tiếng mẹ đẻ của mình nên mình thích sử dụng nó hơn.
   <p align="center">
