@@ -8,8 +8,12 @@
 [ <a href="https://tothelonelywave.atabook.org/">atabook</a> ]
   <br> <br>
   <p align="center">
-
-<img width="2048" height="1152" alt="886707316_122117788347492127_5355498364014922076_n" src="https://github.com/user-attachments/assets/09a828ce-c2a8-49c4-b1f9-89d752b85ddd" />
+<div style="text-align: center;">
+  <video width="600" controls>
+    <source src="https://github.com/user-attachments/assets/9771daac-38d5-49a3-bd18-2b24e2857e71" type="video/mp4">
+  </video>
+</div>
+    <p align="center">
 <i> Reference goes to 少女と舎利 - 流水【Official Music Video】</i>
 <p align="center">
 All the drawings that in my profile and atabook are drawn by me
