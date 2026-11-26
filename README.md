@@ -9,12 +9,8 @@
   <br> <br>
   <p align="center">
 
-<img width="800" height="450" alt="fee3f906-2a45-4535-bc45-1b2f953236e5" src="https://github.com/user-attachments/assets/77174eaa-87e0-4daf-bfb3-b68cd702a493" />
+<img width="2048" height="1216" alt="929096926_122123229609492127_2453494222583393909_n" src="https://github.com/user-attachments/assets/91ffcedd-d727-4e88-9bdb-1dbf83f917fe" />
 
-
-
- <p align="center">
-<i> Reference goes to 少女と舎利 - 流水【Official Music Video】</i>
 <p align="center">
 All the drawings that in my profile and atabook are drawn by me
 <p align="center">
