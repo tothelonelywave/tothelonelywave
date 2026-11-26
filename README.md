@@ -2,7 +2,7 @@
 <p align="center">
   Hyperfixated on FE:C/FE2 right now. I only stay at Safe Vietnamese (and only online along with my friends). Hiii mam <a href="https://github.com/saturatedsummer">@saturatedsummer<a/> hii Bon Bon <a href="https://github.com/underthewhitesnow">@underthewhitesnow<a/>
   <p align="center">
-  I'm currently feeling insecure so I won't actively int, sorry about that. If you want to ask me something just whisper or sign ata, I'll check on them.
+  I'm currently really busy with college stuff + feeling insecure so I won't actively int, sorry about that. If you want to ask me something just whisper or sign ata, I'll check on them.
   <br> <br>
   <p align="center">
 [ <a href="https://tothelonelywave.atabook.org/">atabook</a> ]
