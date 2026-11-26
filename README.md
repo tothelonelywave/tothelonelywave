@@ -14,10 +14,15 @@
 <p align="center">
 All the drawings that in my profile and atabook are drawn by me
 <p align="center">
-I'm alright with using English while chatting but I prefer Vietnamese (if you're Vietnamese). Đơn giản là mình yêu tiếng mẹ đẻ của mình nên mình thích sử dụng nó hơn.
+I'm alright with using English while chatting but I prefer Vietnamese (if you're Vietnamese)
   <p align="center">
 Mình thân thiện, cần gì cứ nói. Khá thoáng nên bạn giữ phép lịch sự tối thiểu là được. Hạn chế tiếp xúc với người dưới 15 tuổi vì mình gặp một số trường hợp khá là tày (và không muốn gặp lại thêm lần nào nữa)
+ <p align="center">
+   <img width="214" height="208.8" alt="933673244_122123182653492127_7164304684341861946_n" src="https://github.com/user-attachments/assets/7862b720-cdeb-4e68-88bf-ba81e23b32cf" />
+
+    
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=tothelonelywave&label=visitor&color=9BB2C7")
 <img src="https://vercel.app" alt="Stats" />
+
 </p>
