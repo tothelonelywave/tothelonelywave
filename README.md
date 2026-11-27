@@ -18,7 +18,7 @@ I'm alright with using English while chatting but I prefer Vietnamese (if you're
   <p align="center">
 Mình thân thiện, cần gì cứ nói. Khá thoáng nên bạn giữ phép lịch sự tối thiểu là được. Hạn chế tiếp xúc với người dưới 15 tuổi vì mình gặp một số trường hợp khá là tiềm năng (và không muốn gặp lại thêm lần nào nữa)
  <p align="center">
-   <img width="214" height="208.8" alt="933673244_122123182653492127_7164304684341861946_n" src="https://github.com/user-attachments/assets/7862b720-cdeb-4e68-88bf-ba81e23b32cf" />
+   <img width="300" height="250" alt="930344407_122123486103492127_1472589401916660693_n" src="https://github.com/user-attachments/assets/abf1027c-0564-41e3-82de-a49aa645aad1" />
 
     
 <div align="center">
